@@ -1,0 +1,2 @@
+# furkantalay
+Digital Marketing Manager
